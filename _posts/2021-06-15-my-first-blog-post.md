@@ -10,5 +10,7 @@ I have a brother who also recently graduated (but he graduated college haha). An
 Social Media information: I have multiple different social media pages from Insta, to tiktok, to Twitter. They almost all follow the same username "smiths_rose".
 
 Brag Sheet: I'm a senior so no need :)
+
 Here's a picture of me (before I cut my hair to my shoulder haha), I'm pretty sure I took this picture right before senior portraits!
+
 ![picture](https://user-images.githubusercontent.com/66581893/121976211-5ceccd00-cd51-11eb-887b-778b4fc65736.JPG)
