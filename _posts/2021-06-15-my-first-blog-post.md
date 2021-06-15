@@ -5,6 +5,5 @@ date: 2021-06-14
 
 
 Hey! My name is Smita Rosemary.
-(https://github.com/srosemary00/finalblogbruh/issues/1#issue-920882449)
 Social Media information: I have multiple different social media pages from Insta, to tiktok, to Twitter. They almost all follow the same username "smiths_rose".
 Brag Sheet: I'm a senior so no need :)
